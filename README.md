@@ -1,2 +1,1 @@
-# goha.ruu
-zkddkz
+gr
