@@ -1,0 +1,2 @@
+# goha.ruu
+zkddkz
